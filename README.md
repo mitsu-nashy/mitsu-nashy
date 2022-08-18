@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mitsu-nashy
+- 👀 I’m interested in coding and programing
+- 🌱 I’m currently learning the programing of some basic languages
+- 💞️ I’m looking to collaborate on A project that contributes to developing and changing the world using technology
+- 📫 How to reach me email: sdouaa62@gmail.com
+-                   github: mitsu-nashy
+- i wish i can colobrate on a project in a short time!
